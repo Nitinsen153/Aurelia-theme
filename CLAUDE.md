@@ -1,0 +1,1 @@
+C:/Users/igtpc/Desktop/shopify file/Aurelia/AGENTS.md
